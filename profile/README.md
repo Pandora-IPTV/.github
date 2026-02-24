@@ -14,7 +14,7 @@ Vermijd nep-aanbieders: alleen **pandoraiptv.com** is echt!
 🚀 **Bezoek onze officiële site:**  
 👉https://pandoraiptv.com/pandora-iptv-kopen-nl/ 
 
-📩 Contact: info@pandoraiptv.com
+📩 Contact: info [at] pandoraiptv [dot] com  
 
 Volg ons voor updates & tips:  
 - X/Twitter: [@PandoraIPTV](https://x.com/PandoraIPTV)  
